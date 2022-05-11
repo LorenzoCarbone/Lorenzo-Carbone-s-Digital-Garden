@@ -1,0 +1,2 @@
+
+During the Mesolithic period (about 10,000 B.C. to 8,000 B.C.), humans used small stone tools, now also polished and sometimes crafted with points and attached to antlers, bone or wood to serve as spears and arrows. They often lived nomadically in camps near rivers and other bodies of water. Agriculture was introduced during this time, which led to more permanent settlements in villages.

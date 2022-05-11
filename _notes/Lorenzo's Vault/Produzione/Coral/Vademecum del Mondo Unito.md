@@ -1,0 +1,3 @@
+- Teoria dello [[Sviluppo Umano]] di [[Amarthya Sen]]
+- Teoria del [[Dividendo di Risorse Globale]] di [[Thomas Pogge]]
+- Teoria del cosmopolitismo di [[Peter Singer]] in [[One World]]

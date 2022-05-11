@@ -1,0 +1,1 @@
+Procedura topografica diretta a localizzare un punto non accessibile, combinando le informazioni desunte da due distinte procedure di misurazione.

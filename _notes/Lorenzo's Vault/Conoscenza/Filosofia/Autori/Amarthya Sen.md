@@ -1,0 +1,7 @@
+#filosofia #autori 
+Correlati: [[Filosofia politica]] [[Giustizia redistributiva secondo Rawls]]
+
+
+*Amartya Kumar Sen CH FBA (Bengali: [ˈɔmortːo ˈʃen]; born 3 November 1933) is an Indian economist and philosopher, who since 1972 has taught and worked in the United Kingdom and the United States. Sen has made contributions to welfare economics, social choice theory, economic and social justice, economic theories of famines, decision theory, development economics, public health, and measures of well-being of countries.
+
+*He is currently a Thomas W. Lamont University Professor, and Professor of Economics and Philosophy at Harvard University.[5] He formerly served as Master of Trinity College at the University of Cambridge.[6] He was awarded the Nobel Memorial Prize in Economic Sciences[7] in 1998 and India's Bharat Ratna in 1999 for his work in welfare economics. The German Publishers and Booksellers Association awarded him the 2020 Peace Prize of the German Book Trade for his pioneering scholarship addressing issues of global justice and combating social inequality in education and healthcare.**

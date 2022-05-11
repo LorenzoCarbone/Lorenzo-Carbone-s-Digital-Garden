@@ -1,0 +1,12 @@
+Correlati: [[Amarthya Sen]] 
+
+Human development grew out of global discussions on the links between economic growth and development during the second half of the 20th Century. By the early 1960s there were increasingly loud calls to “dethrone” GDP: economic growth had emerged as both a leading objective, and indicator, of national progress in many countries i, even though GDP was never intended to be used as a measure of wellbeing. In the 1970s and 80s development debate considered using alternative focuses to go beyond GDP, including putting greater emphasis on employment, followed by redistribution with growth, and then whether people had their basic needs met.
+
+These ideas helped pave the way for the human development approach, which is about expanding the richness of human life, rather than simply the richness of the economy in which human beings live. It is an approach that is focused on creating fair opportunities and choices for all people. So how do these ideas come together in the human development approach?
+
+-   **People:** the human development approach focuses on improving the lives people lead rather than assuming that economic growth will lead, automatically, to greater opportunities for all. Income growth is an important means to development, rather than an end in itself.
+
+-   **Opportunities:** human development is about giving people more freedom and opportunities to live lives they value. In effect this means developing people’s abilities and giving them a chance to use them. For example, educating a girl would build her skills, but it is of little use if she is denied access to jobs, or does not have the skills for the local labour market. The diagram below looks at aspects of human development that are foundational (that is they are a fundamental part of human development); and aspects that are more contextual (that is they help to create the conditions that allow people to flourish). Three foundations for human development are to live a healthy and creative life, to be knowledgeable, and to have access to resources needed for a decent standard of living. Many other aspects are important too, especially in helping to create the right conditions for human development, such as environmental sustainability or equality between men and women.
+
+Source: http://hdr.undp.org/en/content/what-human-development
+https://www.pacificoaks.edu/voices/human-development/human-development-study/

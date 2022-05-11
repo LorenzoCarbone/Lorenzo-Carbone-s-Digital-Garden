@@ -1,0 +1,1 @@
+La legge di Gall afferma che tutti i sistemi complessi funzionanti si sono evoluti da sistemi funzionanti più semplici.
