@@ -1,7 +1,3 @@
-Navigazione:
-[[Zona Conoscenza]]
-[[Esplora il Digital Garden]]
-
 # Concetti
 
 [[Giustizia redistributiva secondo Rawls]]
@@ -17,6 +13,17 @@ Navigazione:
 [[Filosofia politica]]
 [[giustizia distributiva]]
 [[Giustizia redistributiva secondo Rawls]]
+
+
+_______________________________________________________________________
+Navigazione:
+[[Zona Conoscenza]]
+[[Esplora il Digital Garden]]
+
+
+
+
+
 
 
 

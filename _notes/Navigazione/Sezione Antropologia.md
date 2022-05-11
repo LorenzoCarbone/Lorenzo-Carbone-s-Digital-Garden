@@ -1,8 +1,3 @@
-Navigazione:
-[[Zona Conoscenza]]
-[[Esplora il Digital Garden]]
-
-
 # Paleoantropologia
 
 [[Era Glaciale]]
@@ -12,5 +7,12 @@ Navigazione:
 [[Neolitico]]
 [[Paleolitico]]
 [[Preistoria]]
+
+
+_______________________________________________________________________
+Navigazione:
+[[Zona Conoscenza]]
+[[Esplora il Digital Garden]]
+
 
 
