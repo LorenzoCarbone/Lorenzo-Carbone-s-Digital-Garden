@@ -1,0 +1,1 @@
+Il pianeta più importante del settore di [[Gheorghia]], interamente dedicato all’agricoltura e all’allevamento come la maggior parte dei pianeti del settore. Fa parte dell’Unione di Sol e fu uno degli ultimi ad essere annesso.

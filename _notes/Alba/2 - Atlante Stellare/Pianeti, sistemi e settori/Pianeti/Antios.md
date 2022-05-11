@@ -1,0 +1,4 @@
+#pianeti
+Antios é il pianeta capitale della [[Compagnia dell'Orizzonte]]. Ha la funzione di centro amministrativo di tutta l'organizzazione ed é quindi la sede dei suoi principali organi: l'[[Ammiragliato]], il [[Consiglio dello Zenit]] e l'[[ufficio del Primo Ammiraglio]]. É un pianeta particolare, in quanto facente parte di un sistema binario di II grado, ovvero un sistema in cui le due stelle che lo compongono possiedono ognuna una rispettiva serie di pianeti. Antios si trova ad un punto tale che, in una determinata stagione dell'anno, i due soli albeggiano e tramontano contemporaneamente, producendo un gioco di luci senza eguali nello spazio conosciuto. Per via di questo tratto peculiare, estremamente simbolico in quanto rappresentativo degli emblemi astrali della Compagnia, e della morfologia locale il pianeta é stato scelto come Capitale.
+
+![[Antios 1.png]]

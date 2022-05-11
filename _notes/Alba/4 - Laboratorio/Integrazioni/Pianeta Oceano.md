@@ -1,0 +1,1 @@
+Un pianeta costituito solamente da isole immerse in un immenso oceano d'acqua. Queste isole, come la Polinesia terrestre, hanno un sistema sociale, economico e politico totalmente differente l'uno dall'altro, con stati democratici e altri oligarchici etc. Etc.

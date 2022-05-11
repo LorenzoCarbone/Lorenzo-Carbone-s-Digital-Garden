@@ -1,0 +1,1 @@
+Esploratore e colonizzatore della [[Fratellanza di Ganimede]], fondatore di [[Nalos]] e [[Yvon]].

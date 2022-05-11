@@ -1,0 +1,2 @@
+Pilota esploratore comandante della Compagnia dell’Orizzonte, scopritore del pianeta metallico, il Pontefice degli Ordinatori (poichè instaura inconsapevolmente il ponte tra Precursori e Umani, consentendo a questi ultimi di trovare Eridus).
+ 

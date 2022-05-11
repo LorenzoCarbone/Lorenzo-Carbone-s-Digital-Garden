@@ -1,0 +1,1 @@
+Figure leggendarie della storia di Alba che si ritiene responsabili della scrittura dei [[Volumi]] e dell'[[Atlante di Alba]].

@@ -1,0 +1,1 @@
+Durante l'antico conflitto dell'Ordine non tutte le coscienze si schierarono, un terzo circa di esse si astennero. Prendono posizione durante il Conflitto dei tempi e la loro voce, collegialmente ed interamente, risiede nell'Eletto Kyos.

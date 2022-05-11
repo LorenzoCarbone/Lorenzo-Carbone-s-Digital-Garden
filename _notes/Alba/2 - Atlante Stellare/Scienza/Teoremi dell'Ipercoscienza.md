@@ -1,0 +1,9 @@
+Durante e dopo la conclusione del [[Conflitto dei Tempi]], gli uomini e gli altri esseri viventi si sono chiesti, tramite la ricerca scientifica, la natura delle ipercoscienze dei precursori. Come era possibile per quelle creature continuare a vivere in una forma semi-eterea? I teoremi formulati furono due.
+
+Il primo fu il Teorema della risonanza sulla radiazione di fondo, secondo il quale i Precursori avevano sviluppato delle tecnologie in grado di collegare le loro coscienze, una volta lasciato il corpo fisico, alla radiazione di fondo che pervade tutto l'universo. Tramite questa capacità, applicabile però solo in zone circoscritte alla presenza di grandi risonatori (i cristalli di Eridus ad esempio), i Precursori potevano percorrere la radiazione come una corrente elettrica che si diffonde attraverso una fitta rete di cavi.
+
+Il secondo fu il Teorema dell'occupazione della materia oscura, il quale affermava che, sempre tramite l'utilizzo di avanzati dispositivi tecnologici, i Precursori fossero in grado di trasformare la propria coscienza in un'entità composta interamente da materia oscura. Anche questo era possibile solamente tramite la presenza di grandi dispositivi di trasferimento e materializzazione, come i [[cristalli di Eridus]]. 
+
+Durante il Conflitto dei Tempi, quando [[Kyon]] accede alla dimensione dell' Ipercoscienza, l' Ordinatore che lo accompagna gli svela la vera natura della forma eterea dei precursori, la quale combacia con quella descritta da uno dei due teoremi.
+
+In entrambi i casi, nella dimensione dell' [[Ipercoscienza]] i precursori possono apparire come delle fluttuazioni di energia azzurina riempite di scuro vuoto. Talvolta possono però assumere forme della "materia chiara".
