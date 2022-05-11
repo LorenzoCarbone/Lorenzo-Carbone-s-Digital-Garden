@@ -1,4 +1,9 @@
-### Paleoantropologia
+Navigazione:
+[[Zona Conoscenza]]
+[[Esplora il Digital Garden]]
+
+
+# Paleoantropologia
 
 [[Era Glaciale]]
 [[Età della Pietra]]
@@ -7,3 +12,5 @@
 [[Neolitico]]
 [[Paleolitico]]
 [[Preistoria]]
+
+

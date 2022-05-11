@@ -1,3 +1,9 @@
+Navigazione:
+[[Zona Conoscenza]]
+[[Esplora il Digital Garden]]
+
+# Concetti
+
 [[Giustizia redistributiva secondo Rawls]]
 [[Legge di Gall]]
 [[Sviluppo Umano]]
@@ -11,5 +17,7 @@
 [[Filosofia politica]]
 [[giustizia distributiva]]
 [[Giustizia redistributiva secondo Rawls]]
+
+
 
 

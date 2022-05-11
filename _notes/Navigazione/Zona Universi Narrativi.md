@@ -1,3 +1,6 @@
-In questa sezione troverai tutte le cose che scrivo e gli universi narrativi che sto creando🌌
+Navigazione:
+[[Esplora il Digital Garden]]
+
+In questa sezione troverai tutto ciò che scrivo e gli universi narrativi che sto creando🌌
 
 [[Homepage dell'Atlante]]

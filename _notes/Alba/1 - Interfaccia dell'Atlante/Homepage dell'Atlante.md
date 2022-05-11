@@ -1,3 +1,8 @@
+*Navigazione:*
+[[Zona Universi Narrativi]]
+[[Esplora il Digital Garden]]
+
+
 Benvenuto! Questa è l'interfaccia di navigazione dell'**Atlante Stellare del Settore Galattico di Alba**. Da qui potrai accedere a tutti i contenuti disponibili. 
 
 Perfavore, inizia la navigazione scegliendo un portale a tuo scelta: 
